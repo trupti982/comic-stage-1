@@ -1,1 +1,1 @@
-# comic-stage-1
+# COMICS-WORLD-STAGE-1
